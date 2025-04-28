@@ -1,0 +1,1 @@
+# artifical-intelligence-lab-3-solved
